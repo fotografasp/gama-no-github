@@ -1,0 +1,1 @@
+O curso é maravilhoso, já estou com vontade de fazer o curso completo da Gama.
